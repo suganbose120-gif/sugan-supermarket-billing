@@ -17,6 +17,45 @@ const root = path.resolve(path.dirname(fileURLToPath(import.meta.url)), '..');
 app.use(express.json({ limit: '100mb' }));
 app.use((req, res, next) => { res.setHeader('X-Content-Type-Options', 'nosniff'); next(); });
 
+// Protect the remotely hosted POS with HTTP Basic Authentication.
+// Configure APP_USERNAME and APP_PASSWORD in the hosting dashboard.
+// Local development remains unchanged when NODE_ENV is not production.
+app.use((req, res, next) => {
+  if (req.path === '/api/health') return next();
+  if (process.env.NODE_ENV !== 'production') return next();
+
+  const username = String(process.env.APP_USERNAME || '');
+  const password = String(process.env.APP_PASSWORD || '');
+  if (!username || !password) {
+    return res.status(503).send('Application access is not configured. Set APP_USERNAME and APP_PASSWORD.');
+  }
+
+  const header = String(req.headers.authorization || '');
+  const match = header.match(/^Basic\\s+([A-Za-z0-9+/=]+)$/);
+  let suppliedUser = '', suppliedPassword = '';
+  if (match) {
+    try {
+      const decoded = Buffer.from(match[1], 'base64').toString('utf8');
+      const separator = decoded.indexOf(':');
+      if (separator >= 0) {
+        suppliedUser = decoded.slice(0, separator);
+        suppliedPassword = decoded.slice(separator + 1);
+      }
+    } catch { /* Treat malformed credentials as unauthenticated. */ }
+  }
+
+  const safeEqual = (left, right) => {
+    const a = Buffer.from(left);
+    const b = Buffer.from(right);
+    return a.length === b.length && crypto.timingSafeEqual(a, b);
+  };
+  if (!safeEqual(suppliedUser, username) || !safeEqual(suppliedPassword, password)) {
+    res.setHeader('WWW-Authenticate', 'Basic realm="Sugan Supermarket POS", charset="UTF-8"');
+    return res.status(401).send('Authentication required.');
+  }
+  next();
+});
+
 const fail = (status, message) => Object.assign(new Error(message), { status });
 const asInt = (v, label, min = 0) => {
   const n = Number(v);
@@ -313,5 +352,5 @@ const dist=path.join(root,'dist'); if(fs.existsSync(dist)){app.use(express.stati
 app.use((err,_req,res,_next)=>{const tallyStatuses={configuration_error:500,validation_error:400,mapping_error:409,company_unverified:409,company_unknown:409,company_mismatch:409,reconciliation_error:409,connection_error:502,timeout:504,tally_http_error:502,invalid_xml:502,tally_request_error:422,tally_import_error:422,tally_unverified:409,unknown_outcome:409};const status=err.status||tallyStatuses[err.kind]|| (String(err.message).includes('UNIQUE constraint')?409:500);let message=err.message;if(status===409&&message.includes('UNIQUE constraint'))message='Barcode or product code already exists';res.status(status).json({error:message,...(err.kind?{kind:err.kind}:{}),...(err.details?{details:err.details}:{})});});
 
 await initDb();
-app.listen(port,'127.0.0.1',()=>console.log(`Sugan Supermarket Billing System running at http://127.0.0.1:${port}`));
+app.listen(port,'0.0.0.0',()=>console.log(`Sugan Supermarket Billing System running on port ${port}`));
 startTallyWorker();

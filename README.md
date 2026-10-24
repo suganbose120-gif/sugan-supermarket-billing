@@ -120,3 +120,12 @@ Under **Settings & backup**, choose **Download SQLite backup** to save a copy of
 ## Data and privacy
 
 The app binds to loopback (`127.0.0.1`) and does not transmit sales or product data to a remote service. Database writes are saved locally after changes. Keep the Windows account and backup files secure. The project currently has no cashier login or role-based authorization; use the computer's Windows account controls to limit access to settings and stock adjustments.
+
+
+## Hosted deployment (Render)
+
+This application can run as a single Node web service with its Express API and built frontend served together. It uses SQLite through sql.js and writes the database file under `DATA_DIR`. For a hosted deployment, mount persistent storage at `/var/data` and set `DATA_DIR=/var/data`; do not run production billing on ephemeral filesystem storage. The included `render.yaml` defines a web service with a persistent disk.
+
+Set `APP_USERNAME` and `APP_PASSWORD` as secret environment variables before making the service available. Production requests other than the health-check endpoint require HTTP Basic Authentication. Use a unique, strong password and restrict who can access it. This is a basic access gate, not a substitute for individual cashier accounts, audit trails, or role-based authorization.
+
+The database file is persistent on the attached disk, but this single-instance SQLite deployment is intended for a small, single-store setup. Keep regular off-service backups. Do not scale to multiple application instances using the same SQLite file. Tally integration still requires a secure bridge to the Windows computer running Tally; the remote service cannot reach that computer's `127.0.0.1:9000` directly.

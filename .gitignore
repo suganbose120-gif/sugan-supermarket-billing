@@ -1,0 +1,23 @@
+node_modules/
+dist/
+coverage/
+.demo-qr-build/
+
+# Local database files, backups, and exports may contain live business records.
+data/
+*.sqlite
+*.sqlite3
+*.db
+*.db-*
+*.sqlite-*
+
+# Keep local credentials and environment settings out of Git.
+.env*
+!.env.example
+
+# Runtime output and local editor/OS files.
+*.log
+npm-debug.log*
+.DS_Store
+Thumbs.db
+desktop.ini

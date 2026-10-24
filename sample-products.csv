@@ -1,0 +1,4 @@
+name,barcode,sku,category,purchase_price,selling_price,stock,low_stock,unit,expiry_date,gst_rate,hsn_code
+Rice 1 kg,8901234567890,RICE-1KG,Grocery,72.00,85.00,24,5,packet,,5,
+Milk 500 ml,8901234567891,MILK-500,Dairy,25.00,30.00,18,4,packet,2026-10-28,5,
+Loose sugar,,SUGAR-LOOSE,Grocery,42.00,50.00,35.5,5,kg,,0,

@@ -1,1 +1,141 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíß]ýN‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐìÉ•…Ñ•M•ÉÙ•Èô™É½´€¹½‘”é¹•Ðœì)¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐì(€…ÍÍ•ÉÑ1½…±Q…±±å¹‘Á½¥¹Ð°‰Õ¥±‘ÕÉÉ•¹Ñ½µÁ…¹åI•ÅÕ•ÍÐ°‰Õ¥±‘M…±•ÍY½Õ¡•Éaµ°°•ÑQ…±±å¹‘Á½¥¹Ñ%¹™¼°(€‰Õ¥±‘MÑ½­%Ñ•µ%µÁ½ÉÑaµ°°Á…ÉÍ•ÕÉÉ•¹Ñ½µÁ…¹ä°Á…ÉÍ•Q…±±å%µÁ½ÉÑI•ÍÁ½¹Í”°(€Á…ÉÍ•Q…±±å5…ÍÑ•ÉÌ°Á…ÉÍ•QÉ¥…±	…±…¹”°Á…ÉÍ•aµ°°É•½¹¥±•M…±”°Q…±±åÉÉ½È°(€Ñ•ÍÑQ…±±å½¹¹•Ñ¥½¸°Ù…±¥‘…Ñ•aµ°°áµ±Í…Á”°)ô™É½´€œ¸¸½Í•ÉÙ•È½Ñ…±±ä¹©Ìœì)¥µÁ½ÉÐì¹½Éµ…±¥é•Q…±±åM•ÑÑ¥¹Ìô™É½´€œ¸¸½Í•ÉÙ•È½Ñ…±±äµÅÕ•Õ”¹©Ìœì()½¹ÍÐÍ…µÁ±•M…±”€ôì(€¥è€Ä°(€‰¥±±}¹Õµ‰•Èè€MµQMP´ÀÀÄœ°(€É•…Ñ•‘}…Ðè€œÈÀÈØ´ÄÀ´ÈÄ€ÄÈèÌÐèÔØœ°(€Á…åµ•¹Ñ}µ•Ñ¡½è€…Í œ°(€ÍÕ‰Ñ½Ñ…±}Á…¥Í”è€ÄÄÈÀÀ°(€‘¥Í½Õ¹Ñ}Á…¥Í”è€ÈÀÀ°(€Ñ…á}Á…¥Í”è€ÄÀÀÀ°(€Ñ½Ñ…±}Á…¥Í”è€ÄÄÀÀÀ°(€¥Ñ•µÌèmì(€€€ÁÉ½‘ÕÑ}¥è€Ü°ÁÉ½‘ÕÑ}¹…µ”è€I¥”€˜É…¥¸œ°¡Í¹}½‘”è€œÄÀÀØœ°Õ¹¥Ðè€Á…­•Ðœ°(€€€ÅÕ…¹Ñ¥Ñå}µ¥±±¤è€ÄÀÀÀ°Õ¹¥Ñ}ÁÉ¥•}Á…¥Í”è€ÄÄÈÀÀ°‘¥Í½Õ¹Ñ}Á…¥Í”è€ÈÀÀ°(€€€ÍÑ}É…Ñ”è€ÄÀ°Ñ…á}Á…¥Í”è€ÄÀÀÀ°±¥¹•}Ñ½Ñ…±}Á…¥Í”è€ÄÄÀÀÀ°(€õt°)ôì()½¹ÍÐÍ…µÁ±•½¹™¥œ€ôì(€½µÁ…¹å}¹…µ”è€MÕ…¸€˜¼œ°Ù½Õ¡•É}ÑåÁ”è€M…±•Ìœ°ÍÑ½­}É½ÕÀè€½½‘Ìœ°(€…Í¡}±•‘•Èè€…Í œ°ÕÁ¥}±•‘•Èè€UA$	…¹¬œ°Í…±•Í}±•‘•Èè€M…±•Ìœ°(€Ñ…á…‰±•}Í…±•Í}±•‘•Èè€Q…á…‰±”M…±•Ìœ°‘¥Í½Õ¹Ñ}±•‘•Èè€¥Í½Õ¹Ðœ°(€ÍÑ}µ½‘”è€Í¥¹±”œ°ÍÑ}±•‘•Èè€=ÕÑÁÕÐMPœ°Õ¹¥Ñ}µ…ÀèìÁ…­•Ðè€A­Ðœô°(€½µÁ…¹å}ÍÑ…Ñ”è€Q…µ¥°9…‘Ôœ°ÍÑ}•™™•Ñ¥Ù•}™É½´è€œÈÀÈØ´ÀÐ´ÀÄœ°)ôì()Ñ•ÍÐ Q…±±äa50•Í…Á¥¹œ…¹Ù…±¥‘…Ñ¥½¸É•©•Ðµ…±™½Éµ•½È•¹Ñ¥Ñäµ‰•…É¥¹œ‘½Õµ•¹ÑÌœ°€ ¤€ôøì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡áµ±Í…Á”¡€˜€ñø€‰ˆ€€¤°€€™…µÀì€™±Ðí™Ðì€™ÅÕ½Ðí™ÅÕ½Ðì€™…Á½Ìí™…Á½Ììœ¤ì(€…ÍÍ•ÉÐ¹Ñ¡É½ÝÌ  ¤€ôøÙ…±¥‘…Ñ•aµ° œñ9Y1=Aøñ	I=-8øð½9Y1=Aøœ¤°•ÉÉ½È€ôø•ÉÉ½È¹­¥¹€ôôô€¥¹Ù…±¥‘}áµ°œ¤ì(€…ÍÍ•ÉÐ¹Ñ¡É½ÝÌ  ¤€ôøÙ…±¥‘…Ñ•aµ° œð…=QeAàlð…9Q%Qdä€‰‰…ˆùtøñàø™äìð½àøœ¤°•ÉÉ½È€ôø•ÉÉ½È¹­¥¹€ôôô€¥¹Ù…±¥‘}áµ°œ¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡Á…ÉÍ•aµ° œñ9Y1=AøñMQQULøÄð½MQQULøð½9Y1=Aøœ¤¹9Y1=A¹MQQUL°€œÄœ¤ì)ô¤ì()Ñ•ÍÐ Q…±±ä¥µÁ½ÉÐ…•ÁÑ…¹”É•ÅÕ¥É•Ì•á…ÐÉ•…Ñ•½È…±Ñ•É•ÍÑ…Ñ¥ÍÑ¥Ì°¹½Ð!QQ@½a50…±½¹”œ°€ ¤€ôøì(€½¹ÍÐ…•ÁÑ•€ôÁ…ÉÍ•Q…±±å%µÁ½ÉÑI•ÍÁ½¹Í” œñIMA=9MøñMQQULøÄð½MQQULøñIQøÄð½IQøñ1QIøÀð½1QIøñII=ILøÀð½II=ILøñ911øÀð½911øñ%9=IøÀð½%9=Iøð½IMA=9Møœ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…•ÁÑ•¹…•ÁÑ•°ÑÉÕ”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…•ÁÑ•¹É•…Ñ•°€Ä¤ì(€…ÍÍ•ÉÐ¹Ó^·öÚ$z{-®éÜj×Ò%&–6R"5D”ôãÒ$7&VFR#âò“°¢76W'BæÖF6‚‡†ÖÂÂóÄ$4UTä•E3å·CÅÂô$4UTä•E3âò“°¢76W'BæÖF6‚‡†ÖÂÂóÄÔ”Ä”ätäÔSå$”4RÓÅÂôÔ”Ä”ätäÔSâò“°¢76W'BæFöW4æ÷DÖF6‚‡†ÖÂÂôõTä”ät$Ää4WÄõTä”äu$DWÄõTä”äudÅTRò“°¢76W'BçF‡&÷w2‚‚’Óâ'V–ÆE7Fö6´—FVÔ–×÷'E†ÖÂ‡&öGV7BÂ²ââç6×ÆT6öæf–rÂVæ—EöÖ¢·ÒÒ’ÂW'&÷"ÓâW'&÷"æ¶–æBÓÓÒvÖ–æuöW'&÷"r“°§Ò“° §FW7B‚tu5BÖ–æ6ÇW6—fRæBu5BÖW†6ÇW6—fR6fVB&–ÆÇ2&V6öæ6–ÆRv—F†÷WBwVW76–ærF‚&FW2rÂ‚’Óâ°¢6öç7BW†6ÇW6—fU6ÆRÒ°¢ââç6×ÆU6ÆRÂ7V'F÷FÅ÷—6S¢ÂF—66÷VçE÷—6S¢À¢F…÷—6S¢“ÂF÷FÅ÷—6S¢““À¢—FV×3¢·²ââç6×ÆU6ÆRæ—FV×5³ÒÂVæ—E÷&–6U÷—6S¢ÂF—66÷VçE÷—6S¢ÂF…÷—6S¢“ÂÆ–æU÷F÷FÅ÷—6S¢““ÕÒÀ¢Ó°¢6öç7BF÷FÇ2Ò&V6öæ6–ÆU6ÆR†W†6ÇW6—fU6ÆR“°¢76W'BæWVÂ‡F÷FÇ2çF„–æ6ÇW6—fRÂfÇ6R“°¢76W'BæWVÂ‡F÷FÇ2æFV&—E—6RÂ““°¢76W'BæWVÂ‡F÷FÇ2æ7&VF—E—6RÂ““°¢6öç7BG&–Ä&Ææ6RÒ'6UG&–Ä&Ææ6R‡'6U†ÖÂ‚sÄTådTÄõSãÄE544äÔSãÄE5D•5äÔSå6ÆW3ÂôE5D•5äÔSãÂôE544äÔSãÄE544”ädóãÄE54ÄE$ÕCãÄE54ÄE$ÕDãÂôE54ÄE$ÕDãÂôE54ÄE$ÕCãÄE54Ä5$ÕCãÄE54Ä5$ÕDã#2ãCSÂôE54Ä5$ÕDãÂôE54Ä5$ÕCãÂôE544”ädóãÂôTådTÄõSâr’“°¢76W'BæFVWWVÂ‡G&–Ä&Ææ6RÂ·²æÖS¢u6ÆW2rÂFV&—E÷—6S¢Â7&VF—E÷—6S¢#3CRÕÒ“°§Ò“° §FW7B‚uFÆÇ’6WGF–æw2fÆ–FF–öâ&V¦V7G2Vç7W÷'FVBF‚Ö–æw2Â–çfÆ–BVæ—G2æBFFW2rÂ‚’Óâ°¢6öç7B&6RÒ°¢6ö×ç•öæÖS¢u7VvârÂ6ö×ç•÷7FFS¢rrÂf÷V6†W%÷G—S¢u6ÆW2rÂ7Fö6µöw&÷W¢tvööG2rÀ¢66…öÆVFvW#¢t66‚rÂW•öÆVFvW#¢uU’rÂ6ÆW5öÆVFvW#¢u6ÆW2rÂF†&ÆU÷6ÆW5öÆVFvW#¢rrÀ¢6ÆW5÷&WGW&åöÆVFvW#¢rrÂF—66÷VçEöÆVFvW#¢rrÂw7EöÖöFS¢væöæRrÂw7EöÆVFvW#¢rrÀ¢6w7EöÆVFvW#¢rrÂ6w7EöÆVFvW#¢rrÂ–w7EöÆVFvW#¢rrÂw7EöVffV7F—fUög&öÓ¢rrÂVæ—EöÖ¢²–V6S¢tæ÷2rÒÀ¢Ó°¢76W'BæWVÂ†æ÷&ÖÆ—¦UFÆÇ•6WGF–æw2†&6R’æ6ö×ç•öæÖRÂu7Vvâr“°¢76W'BçF‡&÷w2‚‚’Óâæ÷&ÖÆ—¦UFÆÇ•6WGF–æw2‡²ââæ&6RÂw7EöÖöFS¢vwVW72rÒ’ÂW'&÷"ÓâW'&÷"–ç7Fæ6VöbFÆÇ”W'&÷"bbW'&÷"æ¶–æBÓÓÒwfÆ–FF–öåöW'&÷"r“°¢76W'BçF‡&÷w2‚‚’Óâæ÷&ÖÆ—¦UFÆÇ•6WGF–æw2‡²ââæ&6RÂVæ—EöÖ¢²×—7FW'“¢tV6‚rÒÒ’ÂW'&÷"ÓâW'&÷"æ¶–æBÓÓÒwfÆ–FF–öåöW'&÷"r“°¢76W'BçF‡&÷w2‚‚’Óâæ÷&ÖÆ—¦UFÆÇ•6WGF–æw2‡²ââæ&6RÂw7EöVffV7F—fUög&öÓ¢s##bÓ“’ÓC"rÒ’ÂW'&÷"ÓâW'&÷"æ¶–æBÓÓÒwfÆ–FF–öåöW'&÷"r“°§Ò“° 
+import assert from 'node:assert/strict';
+import { createServer } from 'node:net';
+import test from 'node:test';
+import {
+  assertLocalTallyEndpoint, buildCurrentCompanyRequest, buildSalesVoucherXml, getTallyEndpointInfo,
+  buildStockItemImportXml, parseCurrentCompany, parseTallyImportResponse,
+  parseTallyMasters, parseTrialBalance, parseXml, reconcileSale, TallyError,
+  testTallyConnection, validateXml, xmlEscape,
+} from '../server/tally.js';
+import { normalizeTallySettings } from '../server/tally-queue.js';
+
+const sampleSale = {
+  id: 1,
+  bill_number: 'SG-TEST-001',
+  created_at: '2026-10-21 12:34:56',
+  payment_method: 'cash',
+  subtotal_paise: 11200,
+  discount_paise: 200,
+  tax_paise: 1000,
+  total_paise: 11000,
+  items: [{
+    product_id: 7, product_name: 'Rice & grain', hsn_code: '1006', unit: 'packet',
+    quantity_milli: 1000, unit_price_paise: 11200, discount_paise: 200,
+    gst_rate: 10, tax_paise: 1000, line_total_paise: 11000,
+  }],
+};
+
+const sampleConfig = {
+  company_name: 'Sugan & Co', voucher_type: 'Sales', stock_group: 'Goods',
+  cash_ledger: 'Cash', upi_ledger: 'UPI Bank', sales_ledger: 'Sales',
+  taxable_sales_ledger: 'Taxable Sales', discount_ledger: 'Discount',
+  gst_mode: 'single', gst_ledger: 'Output GST', unit_map: { packet: 'Pkt' },
+  company_state: 'Tamil Nadu', gst_effective_from: '2026-04-01',
+};
+
+test('Tally XML escaping and validation reject malformed or entity-bearing documents', () => {
+  assert.equal(xmlEscape(`A & <B> "C" 'D'`), 'A &amp; &lt;B&gt; &quot;C&quot; &apos;D&apos;');
+  assert.throws(() => validateXml('<ENVELOPE><BROKEN></ENVELOPE>'), error => error.kind === 'invalid_xml');
+  assert.throws(() => validateXml('<!DOCTYPE x [<!ENTITY y "bad">]><x>&y;</x>'), error => error.kind === 'invalid_xml');
+  assert.deepEqual(parseXml('<ENVELOPE><STATUS>1</STATUS></ENVELOPE>').ENVELOPE.STATUS, '1');
+});
+
+test('Tally import acceptance requires exact created or altered statistics, not HTTP/XML alone', () => {
+  const accepted = parseTallyImportResponse('<RESPONSE><STATUS>1</STATUS><CREATED>1</CREATED><ALTERED>0</ALTERED><ERRORS>0</ERRORS><CANCELLED>0</CANCELLED><IGNORED>0</IGNORED></RESPONSE>');
+  assert.equal(accepted.accepted, true);
+  assert.equal(accepted.created, 1);
+  assert.throws(
+    () => parseTallyImportResponse('<RESPONSE><STATUS>1</STATUS><CREATED>0</CREATED><ALTERED>0</ALTERED><ERRORS>0</ERRORS></RESPONSE>'),
+    error => error.kind === 'tally_unverified',
+  );
+  assert.throws(
+    () => parseTallyImportResponse('<RESPONSE><STATUS>1</STATUS><CREATED>0</CREATED><ERRORS>1</ERRORS><LINEERROR>Unknown ledger</LINEERROR></RESPONSE>'),
+    error => error.kind === 'tally_import_error' && /Unknown ledger/.test(error.message),
+  );
+});
+
+test('local endpoint guard allows only HTTP loopback and rejects external XML targets', () => {
+  assert.equal(assertLocalTallyEndpoint('http://localhost:9000').port, '9000');
+  assert.deepEqual(getTallyEndpointInfo('http://localhost:9000'), { host: 'localhost', port: 9000, error: null });
+  assert.throws(() => assertLocalTallyEndpoint('https://localhost:9000'), error => error.kind === 'configuration_error');
+  assert.throws(() => assertLocalTallyEndpoint('http://example.com:9000'), error => error.kind === 'configuration_error');
+  assert.throws(() => assertLocalTallyEndpoint('http://localhost:9000/path'), error => error.kind === 'configuration_error');
+});
+
+test('connection test reports actionable local endpoint guidance when connection is refused', async () => {
+  const listener = createServer();
+  await new Promise((resolve, reject) => listener.once('error', reject).listen(0, '127.0.0.1', resolve));
+  const { port } = listener.address();
+  await new Promise((resolve, reject) => listener.close(error => error ? reject(error) : resolve()));
+  await assert.rejects(
+    testTallyConnection({ url: `http://127.0.0.1:${port}`, timeoutMs: 1000 }),
+    error => error instanceof TallyError && error.kind === 'connection_error' && error.message.includes(`127.0.0.1:${port}`) && /Start TallyPrime/.test(error.message) && /billing backend/i.test(error.message),
+  );
+});
+
+test('company and master parsers read names and stable stock part numbers from Tally XML', () => {
+  const companyRequest = buildCurrentCompanyRequest();
+  assert.match(companyRequest, /SVCURRENTCOMPANY/);
+  const company = parseCurrentCompany(parseXml('<ENVELOPE><BODY><DATA><CURRENTCOMPANY>Sugan Supermarket</CURRENTCOMPANY><COMPANYSTATE>Tamil Nadu</COMPANYSTATE></DATA></BODY></ENVELOPE>'));
+  assert.deepEqual(company, { companyName: 'Sugan Supermarket', companyState: 'Tamil Nadu' });
+  const tallyPrimeCompany = parseCurrentCompany(parseXml('<ENVELOPE><HEADER><VERSION>1</VERSION><STATUS>1</STATUS></HEADER><BODY><DATA><COLLECTION><CURRENTCOMPANY NAME="CurrentCompany"><COMPANYSTATE TYPE="String">Tamil Nadu</COMPANYSTATE><CURRENTCOMPANY TYPE="String">Sugan Super Market</CURRENTCOMPANY></CURRENTCOMPANY></COLLECTION></DATA></BODY></ENVELOPE>'));
+  assert.deepEqual(tallyPrimeCompany, { companyName: 'Sugan Super Market', companyState: 'Tamil Nadu' });
+  const masters = parseTallyMasters(parseXml('<ENVELOPE><STOCKITEM NAME="Rice"><NAME>Rice</NAME><PARENT>Goods</PARENT><BASEUNITS>Pkt</BASEUNITS><MAILINGNAME.LIST><MAILINGNAME>RICE-001</MAILINGNAME></MAILINGNAME.LIST></STOCKITEM></ENVELOPE>'), 'stockItems');
+  assert.deepEqual(masters, [{ name: 'Rice', parent: 'Goods', unit: 'Pkt', partNumber: 'RICE-001' }]);
+  const ledgers = parseTallyMasters(parseXml('<ENVELOPE><LEDGER NAME="Cash"><NAME>Cash</NAME></LEDGER><LEDGER NAME="UPI"><NAME>UPI</NAME></LEDGER></ENVELOPE>'), 'ledgers');
+  assert.deepEqual(ledgers.map(item => item.name), ['Cash', 'UPI']);
+});
+
+test('sales voucher retains bill tax and discount snapshots and reconciles debit to credit', () => {
+  const reconciled = reconcileSale(sampleSale);
+  assert.equal(reconciled.taxInclusive, true);
+  assert.equal(reconciled.debitPaise, 11200);
+  assert.equal(reconciled.creditPaise, 11200);
+  const xml = buildSalesVoucherXml(sampleSale, sampleConfig, { 7: { tally_stock_item_name: 'Rice', stable_part_number: 'RICE-001', unit: 'Pkt' } });
+  assert.match(xml, /<VOUCHERNUMBER>SG-TEST-001<\/VOUCHERNUMBER>/);
+  assert.match(xml, /<REMOTEID>SUGAN-SALE-SG-TEST-001<\/REMOTEID>/);
+  assert.match(xml, /<LEDGERNAME>Discount<\/LEDGERNAME>/);
+  assert.match(xml, /<LEDGERNAME>Output GST<\/LEDGERNAME>/);
+  assert.match(xml, /<STOCKITEMNAME>Rice<\/STOCKITEMNAME>/);
+  assert.match(xml, /<AMOUNT>102\.00<\/AMOUNT>/);
+  const inconsistent = { ...sampleSale, tax_paise: 999 };
+  assert.throws(() => reconcileSale(inconsistent), error => error.kind === 'reconciliation_error');
+  assert.throws(() => buildSalesVoucherXml(sampleSale, { ...sampleConfig, gst_mode: 'none' }, { 7: { tally_stock_item_name: 'Rice', unit: 'Pkt' } }), error => error.kind === 'mapping_error');
+});
+
+test('stock-item XML never writes opening balances and requires explicit Tally unit mapping', () => {
+  const product = { id: 7, name: 'Rice', sku: 'RICE-001', unit: 'packet', gst_rate: 0, hsn_code: '' };
+  const xml = buildStockItemImportXml(product, { ...sampleConfig, unit_map: { packet: 'Pkt' } });
+  assert.match(xml, /<STOCKITEM NAME="Rice" ACTION="Create">/);
+  assert.match(xml, /<BASEUNITS>Pkt<\/BASEUNITS>/);
+  assert.match(xml, /<MAILINGNAME>RICE-001<\/MAILINGNAME>/);
+  assert.doesNotMatch(xml, /OPENINGBALANCE|OPENINGRATE|OPENINGVALUE/);
+  assert.throws(() => buildStockItemImportXml(product, { ...sampleConfig, unit_map: {} }), error => error.kind === 'mapping_error');
+});
+
+test('GST-inclusive and GST-exclusive saved bills reconcile without guessing tax rates', () => {
+  const exclusiveSale = {
+    ...sampleSale, subtotal_paise: 10000, discount_paise: 1000,
+    tax_paise: 900, total_paise: 9900,
+    items: [{ ...sampleSale.items[0], unit_price_paise: 10000, discount_paise: 1000, tax_paise: 900, line_total_paise: 9900 }],
+  };
+  const totals = reconcileSale(exclusiveSale);
+  assert.equal(totals.taxInclusive, false);
+  assert.equal(totals.debitPaise, 10900);
+  assert.equal(totals.creditPaise, 10900);
+  const trialBalance = parseTrialBalance(parseXml('<ENVELOPE><DSPACCNAME><DSPDISPNAME>Sales</DSPDISPNAME></DSPACCNAME><DSPACCINFO><DSPCLDRAMT><DSPCLDRAMTA></DSPCLDRAMTA></DSPCLDRAMT><DSPCLCRAMT><DSPCLCRAMTA>123.45</DSPCLCRAMTA></DSPCLCRAMT></DSPACCINFO></ENVELOPE>'));
+  assert.deepEqual(trialBalance, [{ name: 'Sales', debit_paise: 0, credit_paise: 12345 }]);
+});
+
+test('Tally settings validation rejects unsupported tax mappings, invalid units and dates', () => {
+  const base = {
+    company_name: 'Sugan', company_state: '', voucher_type: 'Sales', stock_group: 'Goods',
+    cash_ledger: 'Cash', upi_ledger: 'UPI', sales_ledger: 'Sales', taxable_sales_ledger: '',
+    sales_return_ledger: '', discount_ledger: '', gst_mode: 'none', gst_ledger: '',
+    cgst_ledger: '', sgst_ledger: '', igst_ledger: '', gst_effective_from: '', unit_map: { piece: 'Nos' },
+  };
+  assert.equal(normalizeTallySettings(base).company_name, 'Sugan');
+  assert.throws(() => normalizeTallySettings({ ...base, gst_mode: 'guess' }), error => error instanceof TallyError && error.kind === 'validation_error');
+  assert.throws(() => normalizeTallySettings({ ...base, unit_map: { mystery: 'Each' } }), error => error.kind === 'validation_error');
+  assert.throws(() => normalizeTallySettings({ ...base, gst_effective_from: '2026-99-42' }), error => error.kind === 'validation_error');
+});

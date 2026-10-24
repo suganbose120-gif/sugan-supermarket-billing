@@ -120,4 +120,3 @@ Under **Settings & backup**, choose **Download SQLite backup** to save a copy of
 ## Data and privacy
 
 The app binds to loopback (`127.0.0.1`) and does not transmit sales or product data to a remote service. Database writes are saved locally after changes. Keep the Windows account and backup files secure. The project currently has no cashier login or role-based authorization; use the computer's Windows account controls to limit access to settings and stock adjustments.
-

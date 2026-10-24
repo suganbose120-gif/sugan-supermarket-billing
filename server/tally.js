@@ -1,1 +1,433 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí÷~|N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉĞÉåÁÑ¼™É½´€¹½‘”éÉåÁÑ¼œì)¥µÁ½ÉĞìa51A…ÉÍ•È°a51Y…±¥‘…Ñ½Èô™É½´€™…ÍĞµáµ°µÁ…ÉÍ•Èœì()½¹ÍĞÁ…ÉÍ•È€ô¹•Üa51A…ÉÍ•È¡ì(€¥¹½É•ÑÑÉ¥‰ÕÑ•Ìè™…±Í”°(€…ÑÑÉ¥‰ÕÑ•9…µ•AÉ•™¥àè€|œ°(€Ñ•áÑ9½‘•9…µ”è€œÑ•áĞœ°(€ÑÉ¥µY…±Õ•ÌèÑÉÕ”°(€Á…ÉÍ•Q…Y…±Õ”è™…±Í”°(€Á…ÉÍ•ÑÑÉ¥‰ÕÑ•Y…±Õ”è™…±Í”°)ô¤ì()•áÁ½ÉĞ±…ÍÌQ…±±åÉÉ½È•áÑ•¹‘ÌÉÉ½Èì(€½¹ÍÑÉÕÑ½È¡­¥¹°µ•ÍÍ…”°½ÁÑ¥½¹Ì€ôíô¤ì(€€€ÍÕÁ•È¡µ•ÍÍ…”°½ÁÑ¥½¹Ì¤ì(€€€Ñ¡¥Ì¹¹…µ”€ô€Q…±±åÉÉ½Èœì(€€€Ñ¡¥Ì¹­¥¹€ô­¥¹ì(€€€Ñ¡¥Ì¹É•ÑÉå…‰±”€ô	½½±•…¸¡½ÁÑ¥½¹Ì¹É•ÑÉå…‰±”¤ì(€€€Ñ¡¥Ì¹‘•Ñ…¥±Ì€ô½ÁÑ¥½¹Ì¹‘•Ñ…¥±Ìñğ¹Õ±°ì(€ô)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸áµ±Í…Á”¡Ù…±Õ”¤ì(€É•ÑÕÉ¸MÑÉ¥¹œ¡Ù…±Õ”€üü€œœ¤¹É•Á±…” ½l˜ğøˆt½œ°¡…É…Ñ•È€ôø€¡ì(€€€€œ˜œè€œ™…µÀìœ°€œğœè€œ™±Ğìœ°€œøœè€œ™Ğìœ°€œˆœè€œ™ÅÕ½Ğìœ°€ˆœˆè€œ™…Á½Ììœ°(€õm¡…É…Ñ•Ét¤¤ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸Ù…±¥‘…Ñ•aµ°¡áµ°°±…‰•°€ô€a50œ¤ì(€¥˜€¡ÑåÁ•½˜áµ°€„ôô€ÍÑÉ¥¹œœñğ€…áµ°¹ÑÉ¥´ ¤ñğ	Õ™™•È¹‰åÑ•1•¹Ñ ¡áµ°°€ÕÑ˜àœ¤€ø€Ñ|ÀÀÁ|ÀÀÀ¤ì(€€€Ñ¡É½Ü¹•ÜQ…±±åÉÉ½È ¥¹Ù…±¥‘}áµ°œ°€‘í±…‰•±ô¥Ì•µÁÑä½È•á••‘ÌÑ¡”€Ğ5±¥µ¥Ñ€¤ì(€ô(€¥˜€ ¼ğ…qÌ¨ üé=QeAñ9Q%Qd¤½¤¹Ñ•ÍĞ¡áµ°¤¤ì(€€€Ñ¡É½Ü¹•ÜQ…±±åÉÉ½È ¥¹Ù…±¥‘}áµ°œ°€‘í±…‰•±ôµÕÍĞ¹½Ğ½¹Ñ…¥¸„‘½Õµ•¹ĞÑåÁ”½È•¹Ñ¥Ñä‘•±…É…Ñ¥½¹€¤ì(€ô(€½¹ÍĞÙ…±¥‘…Ñ¥½¸€ôa51Y…±¥‘…Ñ½È¹Ù…±¥‘…Ñ”¡áµ°¤ì(€¥˜€¡Ù…±¥‘…Ñ¥½¸€„ôôÑÉÕ”¤ì(€€€Ñ¡É½Ü¹•ÜQ…±±åÉÉ½È ¥¹Ù…±¥‘}áµ°œ°€‘í±…‰•±ô¥Ì¹½Ğİ•±°µ™½Éµ•a51€°ì‘•Ñ…¥±ÌèÙ…±¥‘…Ñ¥½¸ô¤ì(€ô(€É•ÑÕÉ¸áµ°ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸Á…ÉÍ•aµ°¡áµ°¤ì(€Ù…±¥‘…Ñ•aµ°¡áµ°°€Q…±±äÉ•ÍÁ½¹Í”œ¤ì(€ÑÉäìÉ•ÑÕÉ¸Á…ÉÍ•È¹Á…ÉÍ”¡áµ°¤ìô(€…Ñ €¡•ÉÉ½È¤ìÑ¡É½Ü¹•ÜQ…±±åÉÉ½È ¥¹Ù…±¥‘}áµ°œ°€Q…±±äÉ•ÑÕÉ¹•a50Ñ¡…Ğ½Õ±¹½Ğ‰”Á…ÉÍ•œ°ì…ÕÍ”è•ÉÉ½Èô¤ìô)ô()™Õ¹Ñ¥½¸İ…±¬¡¹½‘”°…±±‰…¬¤ì(€¥˜€¡ÉÉ…ä¹¥ÍÉÉ…ä¡¹½‘”¤¤ì™½È€¡½¹ÍĞ¥Ñ•´½˜¹½‘”¤İ…±¬¡¥Ñ•´°…±±‰…¬¤ìÉ•ÑÕÉ¸ìô(€¥˜€ …¹½‘”ñğÑåÁ•½˜¹½‘”€„ôô€½‰©•Ğœ¤É•ÑÕÉ¸ì(€™½È€¡½¹ÍĞm­•ä°Ù…±Õ•t½˜=‰©•Ğ¹•¹ÑÉ¥•Ì¡¹½‘”¤¤ì(€€€…±±‰…¬¡­•ä°Ù…±Õ”°¹½‘”¤ì(€€€İ…±¬¡Ù…±Õ”°…±±‰…¬¤ì(€ô)ô()™Õ¹Ñ¥½¸Ñ…Y…±Õ•Ì¡‘½Õµ•¹Ğ°İ…¹Ñ•¤ì(€½¹ÍĞ™½Õ¹€ômtì(€½¹ÍĞÑ…É•Ğ€ôİ…¹Ñ•¹Ñ½UÁÁ•É…Í” ¤ì(€İ…±¬¡‘½Õµ•¹Ğ°€¡­•ä°Ù…±Õ”¤€ôøì(€€€¥˜€¡­•ä¹Ñ½UÁÁ•É…Í” ¤€„ôôÑ…É•Ğ¤É•ÑÕÉ¸ì(€€€¥˜€¡ÉÉ…ä¹¥ÍÉÉ…ä¡Ù…±Õ”¤¤™½Õ¹¹ÁÕÍ  ¸¸¹Ù…±Õ”¤ì(€€€•±Í”™½Õ¹¹ÁÕÍ ¡Ù…±Õ”¤ì(€ô¤ì(€É•ÑÕÉ¸™½Õ¹ì)ô()™Õ¹Ñ¥½¸Ñ•áÑ=˜¡Ù…±Õ”¤ì(€¥˜€¡Ù…±Õ”€ôôôÕ¹‘•™¥¹•ñğÙ…±Õ”€ôôô¹Õ±°¤É•ÑÕÉ¸€œœì(€¥˜€¡ÑåÁ•½˜Ù…±Õ”€„ôô€½‰©—¿9òÚ$z{-®éÜj×öW'&÷"rÂt&–ÆÂFFR×W7B&R–â•••’ÔÔÒÔDBf÷&ÖBr“°¢6öç7B–ÖVçDVçG'’ÒÆVFvW$VçG'’‡–ÖVçDÆVFvW"Â6ÆRçF÷FÅ÷—6RÂG'VR“°¢6öç7Bf÷V6†W"ÒÅdõT4„U"d4…E•SÒ"G·†ÖÄW66R†6öæf–rçf÷V6†W%÷G—R—Ò"5D”ôãÒ$7&VFR"ô$¥d”UsÒ$66÷VçF–ærf÷V6†W"f–Wr#ãÄDDSâG¶FFWÓÂôDDSãÅdõT4„U%E•TäÔSâG·†ÖÄW66R†6öæf–rçf÷V6†W%÷G—R—ÓÂõdõT4„U%E•TäÔSãÅdõT4„U$åTÔ$U#âG·†ÖÄW66R†&–ÆÄçVÖ&W"—ÓÂõdõT4„U$åTÔ$U#ãÄuT”CâG·7F&ÆTwV–B‡&VÖ÷FT–B—ÓÂôuT”CãÅ$TÔõDT”CâG·†ÖÄW66R‡&VÖ÷FT–B—ÓÂõ$TÔõDT”CãÅ$TdU$Tä4SâG·†ÖÄW66R†&–ÆÄçVÖ&W"—ÓÂõ$TdU$Tä4SãÄä%$D”ôãâG·†ÖÄW66R†7Vvâõ2&–ÆÂG¶&–ÆÄçVÖ&W'Ö—ÓÂôä%$D”ôããÅU%4•5DTEd”Usä66÷VçF–ærf÷V6†W"f–WsÂõU%4•5DTEd”UsãÄ•4”ådô”4SäæóÂô•4”ådô”4SâG·–ÖVçDVçG'—ÒG¶F—66÷VçDVçG'—ÒG·6ÆW4VçG&–W7ÒG·F„VçG&–W7ÓÂõdõT4„U#æ°¢&WGW&âfÆ–FFU†ÖÂ†ÄTådTÄõSãÄ„TDU#ãÅdU%4”ôããÂõdU%4”ôããÅDÄÅ•$UTU5Cä–×÷'CÂõDÄÅ•$UTU5CãÅE•SäFFÂõE•SãÄ”Cåf÷V6†W'3Âô”CãÂô„TDU#ãÄ$ôE“ãÄDU43ãÅ5DD”5d$”$ÄU3ãÅ5d5U%$TåD4ôÕå“âG·†ÖÄW66R†6öæf–ræ6ö×ç•öæÖR—ÓÂõ5d5U%$TåD4ôÕå“ãÂõ5DD”5d$”$ÄU3ãÂôDU43ãÄDDãÅDÄÅ”ÔU54tSâG·f÷V6†W'ÓÂõDÄÅ”ÔU54tSãÂôDDãÂô$ôE“ãÂôTådTÄõSæÂu6ÆW2f÷V6†W"&WVW7Br“°§Ğ ¦W‡÷'BgVæ7F–öâ'V–ÆEf÷V6†W$Æöö·W&WVW7B†6ö×ç”æÖRÂ&VÖ÷FT–B’°¢–b‚6ö×ç”æÖRÇÂõå5TtâÕ4ÄRÕ´Õ¦×£Ó’åòÕÒ²BòçFW7B‡&VÖ÷FT–B’’F‡&÷ræWrFÆÇ”W'&÷"‚wfÆ–FF–öåöW'&÷"rÂt–çfÆ–Bf÷V6†W"Æöö·W¶W’r“°¢6öç7Bf÷&×VÆÒBD—4WVÃ¢E&VÖ÷FT”C¢"G·&VÖ÷FT–GÒ&°¢&WGW&âÄTådTÄõSãÄ„TDU#ãÅdU%4”ôããÂõdU%4”ôããÅDÄÅ•$UTU5CäW‡÷'CÂõDÄÅ•$UTU5CãÅE•Sä6öÆÆV7F–öãÂõE•SãÄ”Cå7Vvåf÷V6†W$Æöö·WÂô”CãÂô„TDU#ãÄ$ôE“ãÄDU43ãÅ5DD”5d$”$ÄU3ãÅ5d5U%$TåD4ôÕå“âG·†ÖÄW66R†6ö×ç”æÖR—ÓÂõ5d5U%$TåD4ôÕå“ãÅ5dU…õ%Ddõ$ÔCâBE7—4æÖS¥„ÔÃÂõ5dU…õ%Ddõ$ÔCãÂõ5DD”5d$”$ÄU3ãÅDDÃãÅDDÄÔU54tSãÄ4ôÄÄT5D”ôâäÔSÒ%7Vvåf÷V6†W$Æöö·W"E•SÒ%f÷V6†W""•4ÔôD”e“Ò$æò#ãÄdUD4ƒå&VÖ÷FT”CÂôdUD4ƒãÄdUD4ƒäuT”CÂôdUD4ƒãÄdUD4ƒåf÷V6†W$çVÖ&W#ÂôdUD4ƒãÄdUD4ƒäÖ7FW$”CÂôdUD4ƒãÄd”ÅDU%3å7Vvå&VÖ÷FT–Df–ÇFW#Âôd”ÅDU%3ãÂô4ôÄÄT5D”ôããÅ5•5DTÒE•SÒ$f÷&×VÆR"äÔSÒ%7Vvå&VÖ÷FT–Df–ÇFW"#âG¶f÷&×VÆÓÂõ5•5DTÓãÂõDDÄÔU54tSãÂõDDÃãÂôDU43ãÂô$ôE“ãÂôTådTÄõSæ°§Ğ ¦W‡÷'BgVæ7F–öâf–æEf÷V6†W$'•&VÖ÷FT–B†Fö7VÖVçBÂ&VÖ÷FT–B’°¢&WGW&âFufÇVW2†Fö7VÖVçBÂudõT4„U"r’ç6öÖR‡f÷V6†W"Óâ6†–ÆEFW‡B‡f÷V6†W"Âu$TÔõDT”Br’ÓÓÒ&VÖ÷FT–BÇÂ6†–ÆEFW‡B‡f÷V6†W"Âu$TÔõDT”Br’çFõWW$66R‚’ÓÓÒ&VÖ÷FT–BçFõWW$66R‚’“°§Ğ 
+import crypto from 'node:crypto';
+import { XMLParser, XMLValidator } from 'fast-xml-parser';
+
+const parser = new XMLParser({
+  ignoreAttributes: false,
+  attributeNamePrefix: '@_',
+  textNodeName: '#text',
+  trimValues: true,
+  parseTagValue: false,
+  parseAttributeValue: false,
+});
+
+export class TallyError extends Error {
+  constructor(kind, message, options = {}) {
+    super(message, options);
+    this.name = 'TallyError';
+    this.kind = kind;
+    this.retryable = Boolean(options.retryable);
+    this.details = options.details || null;
+  }
+}
+
+export function xmlEscape(value) {
+  return String(value ?? '').replace(/[&<>"']/g, character => ({
+    '&': '&amp;', '<': '&lt;', '>': '&gt;', '"': '&quot;', "'": '&apos;',
+  }[character]));
+}
+
+export function validateXml(xml, label = 'XML') {
+  if (typeof xml !== 'string' || !xml.trim() || Buffer.byteLength(xml, 'utf8') > 4_000_000) {
+    throw new TallyError('invalid_xml', `${label} is empty or exceeds the 4 MB limit`);
+  }
+  if (/<!\s*(?:DOCTYPE|ENTITY)/i.test(xml)) {
+    throw new TallyError('invalid_xml', `${label} must not contain a document type or entity declaration`);
+  }
+  const validation = XMLValidator.validate(xml);
+  if (validation !== true) {
+    throw new TallyError('invalid_xml', `${label} is not well-formed XML`, { details: validation });
+  }
+  return xml;
+}
+
+export function parseXml(xml) {
+  validateXml(xml, 'Tally response');
+  try { return parser.parse(xml); }
+  catch (error) { throw new TallyError('invalid_xml', 'Tally returned XML that could not be parsed', { cause: error }); }
+}
+
+function walk(node, callback) {
+  if (Array.isArray(node)) { for (const item of node) walk(item, callback); return; }
+  if (!node || typeof node !== 'object') return;
+  for (const [key, value] of Object.entries(node)) {
+    callback(key, value, node);
+    walk(value, callback);
+  }
+}
+
+function tagValues(document, wanted) {
+  const found = [];
+  const target = wanted.toUpperCase();
+  walk(document, (key, value) => {
+    if (key.toUpperCase() !== target) return;
+    if (Array.isArray(value)) found.push(...value);
+    else found.push(value);
+  });
+  return found;
+}
+
+function textOf(value) {
+  if (value === undefined || value === null) return '';
+  if (typeof value !== 'object') return String(value).trim();
+  if (Array.isArray(value)) return textOf(value[0]);
+  if (value['#text'] !== undefined) return textOf(value['#text']);
+  return '';
+}
+
+function scalar(document, tag) { return textOf(tagValues(document, tag)[0]); }
+
+export function parseTallyImportResponse(xml, expectedCount = 1) {
+  const document = parseXml(xml);
+  const status = scalar(document, 'STATUS');
+  const lineErrors = tagValues(document, 'LINEERROR').map(textOf).filter(Boolean);
+  const errors = Number(scalar(document, 'ERRORS') || 0);
+  const cancelled = Number(scalar(document, 'CANCELLED') || 0);
+  const created = Number(scalar(document, 'CREATED') || 0);
+  const altered = Number(scalar(document, 'ALTERED') || 0);
+  const combined = Number(scalar(document, 'COMBINED') || 0);
+  const ignored = Number(scalar(document, 'IGNORED') || 0);
+  if (status === '0' || lineErrors.length || errors > 0 || cancelled > 0) {
+    throw new TallyError('tally_import_error', lineErrors[0] || scalar(document, 'DESC') || 'Tally reported an import error', {
+      details: { status, created, altered, errors, cancelled, ignored, lineErrors },
+    });
+  }
+  if (created + altered !== expectedCount || combined !== 0 || ignored !== 0) {
+    throw new TallyError('tally_unverified', 'Tally response did not confirm the expected number of imported records', {
+      details: { status, created, altered, combined, errors, cancelled, ignored, expectedCount },
+    });
+  }
+  return {
+    accepted: true,
+    created,
+    altered,
+    lastVoucherId: scalar(document, 'LASTVCHID') || null,
+    lastMasterId: scalar(document, 'LASTMID') || null,
+    response: { status: status || null, created, altered, combined, ignored, errors, cancelled },
+  };
+}
+
+export function assertLocalTallyEndpoint(endpoint = process.env.TALLY_XML_URL || 'http://127.0.0.1:9000') {
+  let url;
+  try { url = new URL(endpoint); }
+  catch { throw new TallyError('configuration_error', 'TALLY_XML_URL must be a valid local HTTP URL'); }
+  const localHosts = new Set(['localhost', '127.0.0.1', '::1', '[::1]']);
+  if (url.protocol !== 'http:' || !localHosts.has(url.hostname.toLowerCase()) || url.username || url.password || url.search || url.hash || (url.pathname !== '/' && url.pathname !== '')) {
+    throw new TallyError('configuration_error', 'TALLY_XML_URL must point to the local Tally HTTP server (for example http://127.0.0.1:9000)');
+  }
+  return url;
+}
+
+export function getTallyRuntimeConfig() {
+  const timeoutMs = Number(process.env.TALLY_TIMEOUT_MS || 8000);
+  if (!Number.isInteger(timeoutMs) || timeoutMs < 500 || timeoutMs > 60000) {
+    throw new TallyError('configuration_error', 'TALLY_TIMEOUT_MS must be an integer from 500 to 60000');
+  }
+  return { url: assertLocalTallyEndpoint(process.env.TALLY_XML_URL || 'http://127.0.0.1:9000'), timeoutMs };
+}
+
+export function getTallyEndpointInfo(endpoint = process.env.TALLY_XML_URL || 'http://127.0.0.1:9000') {
+  try {
+    const url = assertLocalTallyEndpoint(endpoint);
+    return { host: url.hostname, port: Number(url.port || 80), error: null };
+  } catch (error) {
+    return { host: null, port: null, error: error.message };
+  }
+}
+
+function endpointLabel(url) {
+  return `${url.hostname}:${url.port || 80}`;
+}
+
+export async function postTallyXml(xml, options = {}) {
+  validateXml(xml, 'Tally request');
+  const url = options.url ? assertLocalTallyEndpoint(options.url) : getTallyRuntimeConfig().url;
+  const timeoutMs = options.timeoutMs ?? getTallyRuntimeConfig().timeoutMs;
+  let response;
+  try {
+    response = await fetch(url, {
+      method: 'POST',
+      headers: { 'Content-Type': 'text/xml; charset=utf-8', Accept: 'text/xml, application/xml' },
+      body: xml,
+      signal: AbortSignal.timeout(timeoutMs),
+    });
+  } catch (error) {
+    const kind = error?.name === 'TimeoutError' || error?.name === 'AbortError' ? 'timeout' : 'connection_error';
+    const endpoint = endpointLabel(url);
+    const message = kind === 'timeout'
+      ? `TallyPrime did not respond at ${endpoint} within ${timeoutMs} ms. Check that TallyPrime is open and its HTTP/XML server is enabled on this port.`
+      : `Could not connect to Tally at ${endpoint}. Start TallyPrime, load the intended company, and enable its HTTP/XML server on port ${url.port || 80}. This loopback endpoint is the computer running the billing backend; if Tally is on another computer, run this backend beside Tally or use an administrator-approved secure private tunnel.`;
+    throw new TallyError(kind, message, { cause: error, retryable: true });
+  }
+  const contentLength = Number(response.headers.get('content-length') || 0);
+  if (contentLength > 4_000_000) throw new TallyError('invalid_xml', 'Tally response exceeds the 4 MB limit');
+  let responseXml;
+  try { responseXml = await response.text(); }
+  catch (error) { throw new TallyError('connection_error', 'Could not read the response from Tally', { cause: error, retryable: true }); }
+  if (Buffer.byteLength(responseXml, 'utf8') > 4_000_000) throw new TallyError('invalid_xml', 'Tally response exceeds the 4 MB limit');
+  if (!response.ok) throw new TallyError('tally_http_error', `Tally returned HTTP ${response.status}`, { retryable: response.status >= 500 });
+  const document = parseXml(responseXml);
+  const tallyStatus = scalar(document, 'STATUS');
+  if (tallyStatus === '0') {
+    const description = scalar(document, 'LINEERROR') || scalar(document, 'DESC') || 'Tally rejected the XML request';
+    throw new TallyError('tally_request_error', description, { details: { tallyStatus } });
+  }
+  return { document, xml: responseXml };
+}
+
+export function buildCurrentCompanyRequest() {
+  return `<ENVELOPE><HEADER><VERSION>1</VERSION><TALLYREQUEST>Export</TALLYREQUEST><TYPE>Collection</TYPE><ID>SuganCurrentCompany</ID></HEADER><BODY><DESC><STATICVARIABLES/><TDL><TDLMESSAGE><OBJECT NAME="CurrentCompany"><LOCALFORMULA>CurrentCompany:##SVCURRENTCOMPANY</LOCALFORMULA><LOCALFORMULA>CompanyState:$StateName:Company:##SVCURRENTCOMPANY</LOCALFORMULA></OBJECT><COLLECTION NAME="SuganCurrentCompany" ISMODIFY="No"><OBJECTS>CurrentCompany</OBJECTS></COLLECTION></TDLMESSAGE></TDL></DESC></BODY></ENVELOPE>`;
+}
+
+export function parseCurrentCompany(document) {
+  // TallyPrime can wrap the current-company fields in an outer object with the
+  // same tag name. Skip that container and use the first non-empty leaf value.
+  const companyName = ['CURRENTCOMPANY', 'SERVERCOMPANYNAME', 'COMPANYNAME']
+    .flatMap(tag => tagValues(document, tag).map(textOf))
+    .find(Boolean) || null;
+  const companyState = scalar(document, 'COMPANYSTATE') || scalar(document, 'STATENAME');
+  return { companyName, companyState: companyState || null };
+}
+
+export async function testTallyConnection(options = {}) {
+  const { expectedCompany = process.env.TALLY_EXPECTED_COMPANY || 'Sugan Super Market', ...requestOptions } = options;
+  const { document } = await postTallyXml(buildCurrentCompanyRequest(), requestOptions);
+  const { companyName, companyState } = parseCurrentCompany(document);
+  const companyMatchesExpected = Boolean(companyName && companyName === expectedCompany);
+  return {
+    connected: true,
+    companyIdentified: Boolean(companyName),
+    companyMatchesExpected,
+    expectedCompany,
+    selectedCompany: companyName,
+    companyState,
+    message: !companyName
+      ? 'Tally responded with valid XML, but no loaded company name was found.'
+      : companyMatchesExpected
+        ? `TallyPrime is reachable and the expected company â€œ${expectedCompany}â€ is loaded.`
+        : `TallyPrime is reachable, but â€œ${companyName}â€ is loaded instead of the expected company â€œ${expectedCompany}â€.`,
+  };
+}
+
+export function buildListOfAccountsRequest(companyName, accountType) {
+  if (!companyName || !['Ledgers', 'Stock Items', 'Stock Groups', 'Units'].includes(accountType)) {
+    throw new TallyError('mapping_error', 'A company and supported Tally master type are required');
+  }
+  return `<ENVELOPE><HEADER><VERSION>1</VERSION><TALLYREQUEST>Export</TALLYREQUEST><TYPE>Data</TYPE><ID>List of Accounts</ID></HEADER><BODY><DESC><STATICVARIABLES><SVCURRENTCOMPANY>${xmlEscape(companyName)}</SVCURRENTCOMPANY><SVEXPORTFORMAT>$$SysName:XML</SVEXPORTFORMAT><AccountType>${xmlEscape(accountType)}</AccountType></STATICVARIABLES></DESC></BODY></ENVELOPE>`;
+}
+
+export function buildTrialBalanceRequest(companyName, fromDate, toDate) {
+  if (!companyName) throw new TallyError('mapping_error', 'A verified Tally company is required');
+  const formatDate = date => String(date || '').replaceAll('-', '');
+  if (!/^\d{8}$/.test(formatDate(fromDate)) || !/^\d{8}$/.test(formatDate(toDate))) {
+    throw new TallyError('validation_error', 'Report dates must be valid YYYY-MM-DD dates');
+  }
+  return `<ENVELOPE><HEADER><VERSION>1</VERSION><TALLYREQUEST>Export</TALLYREQUEST><TYPE>Data</TYPE><ID>Trial Balance</ID></HEADER><BODY><DESC><STATICVARIABLES><SVCURRENTCOMPANY>${xmlEscape(companyName)}</SVCURRENTCOMPANY><SVFROMDATE>${formatDate(fromDate)}</SVFROMDATE><SVTODATE>${formatDate(toDate)}</SVTODATE><SVEXPORTFORMAT>$$SysName:XML</SVEXPORTFORMAT></STATICVARIABLES></DESC></BODY></ENVELOPE>`;
+}
+
+function childText(object, tag) {
+  if (!object || typeof object !== 'object') return '';
+  const key = Object.keys(object).find(name => name.toUpperCase() === tag.toUpperCase());
+  return key ? textOf(object[key]) : '';
+}
+
+export function parseTallyMasters(document, kind) {
+  const tagName = { ledgers: 'LEDGER', stockItems: 'STOCKITEM', stockGroups: 'STOCKGROUP', units: 'UNIT' }[kind];
+  if (!tagName) throw new TallyError('validation_error', 'Unsupported Tally master type');
+  const result = [];
+  for (const raw of tagValues(document, tagName)) {
+    const item = raw && typeof raw === 'object' ? raw : {};
+    const name = item['@_NAME'] || childText(item, 'NAME') || childText(item, 'NAME.LIST');
+    if (!name) continue;
+    const partNumber = childText(item, 'PARTNO') || childText(item['MAILINGNAME.LIST'], 'MAILINGNAME') || childText(item, 'MAILINGNAME');
+    result.push({ name: String(name).trim(), parent: childText(item, 'PARENT') || null, unit: childText(item, 'BASEUNITS') || null, partNumber: partNumber || null });
+  }
+  return result;
+}
+
+function findChild(object, wanted) {
+  if (!object || typeof object !== 'object' || Array.isArray(object)) return undefined;
+  const key = Object.keys(object).find(name => name.toUpperCase() === wanted.toUpperCase());
+  return key ? object[key] : undefined;
+}
+
+function amountPaise(value) {
+  const raw = textOf(value).replaceAll(',', '').trim();
+  if (!raw) return 0;
+  const match = raw.match(/-?\d+(?:\.\d+)?/);
+  if (!match) return null;
+  const amount = Number(match[0]);
+  return Number.isFinite(amount) ? Math.round(amount * 100) : null;
+}
+
+export function parseTrialBalance(document) {
+  const entries = [];
+  const visit = node => {
+    if (Array.isArray(node)) { for (const item of node) visit(item); return; }
+    if (!node || typeof node !== 'object') return;
+    const nameNodes = findChild(node, 'DSPACCNAME');
+    const infoNodes = findChild(node, 'DSPACCINFO');
+    if (nameNodes !== undefined && infoNodes !== undefined) {
+      const names = Array.isArray(nameNodes) ? nameNodes : [nameNodes];
+      const infos = Array.isArray(infoNodes) ? infoNodes : [infoNodes];
+      for (let index = 0; index < Math.min(names.length, infos.length); index += 1) {
+        const name = scalar(names[index], 'DSPDISPNAME') || scalar(names[index], 'DSPACCNAME') || textOf(names[index]);
+        const info = infos[index];
+        const debit = amountPaise(tagValues(info, 'DSPCLDRAMTA')[0]);
+        const credit = amountPaise(tagValues(info, 'DSPCLCRAMTA')[0]);
+        if (name) entries.push({ name, debit_paise: debit, credit_paise: credit });
+      }
+    }
+    for (const child of Object.values(node)) visit(child);
+  };
+  visit(document);
+  return entries;
+}
+
+export function stableProductPartNumber(product) {
+  const code = String(product.sku || product.barcode || '').trim();
+  return code || `SG-PRODUCT-${String(product.id).padStart(8, '0')}`;
+}
+
+function hsnXml(product, config) {
+  const rate = Number(product.gst_rate || 0);
+  if (!rate) return '';
+  const code = String(product.hsn_code || '').trim();
+  const state = String(config.company_state || '').trim();
+  const effective = String(config.gst_effective_from || '').replaceAll('-', '');
+  if (!code) throw new TallyError('mapping_error', `HSN/SAC is missing for ${product.name}`);
+  if (!state) throw new TallyError('mapping_error', 'Enter the company GST state before syncing taxable products');
+  if (!/^\d{8}$/.test(effective)) throw new TallyError('mapping_error', 'Set the GST detail effective date before syncing taxable products');
+  return `<GSTAPPLICABLE>Applicable</GSTAPPLICABLE><HSNDETAILS.LIST><APPLICABLEFROM>${effective}</APPLICABLEFROM><HSNCODE>${xmlEscape(code)}</HSNCODE><SRCOFHSNDETAILS>Specify Details Here</SRCOFHSNDETAILS></HSNDETAILS.LIST><GSTDETAILS.LIST><APPLICABLEFROM>${effective}</APPLICABLEFROM><TAXABILITY>Taxable</TAXABILITY><CALCULATIONTYPE>On Value</CALCULATIONTYPE><NATUREOFGOODS>Goods</NATUREOFGOODS><STATEWISEDETAILS.LIST><STATENAME>${xmlEscape(state)}</STATENAME><RATEDETAILS.LIST><GSTRATEDUTYHEAD>Integrated Tax</GSTRATEDUTYHEAD><GSTRATE>${rate.toFixed(2)}</GSTRATE></RATEDETAILS.LIST></STATEWISEDETAILS.LIST></GSTDETAILS.LIST>`;
+}
+
+export function buildStockItemImportXml(product, config, { action = 'Create', existingName = null, partNumber = stableProductPartNumber(product) } = {}) {
+  const unitMap = typeof config.unit_map === 'string' ? JSON.parse(config.unit_map || '{}') : (config.unit_map || {});
+  const unit = String(unitMap[product.unit] || '').trim();
+  if (!config.company_name || !config.stock_group) throw new TallyError('mapping_error', 'Verified company and stock group mappings are required');
+  if (!unit) throw new TallyError('mapping_error', `Map the application unit â€œ${product.unit}â€ to an existing Tally unit`);
+  const targetName = existingName || product.name;
+  const safeAction = action === 'Alter' ? 'Alter' : 'Create';
+  const gst = Number(product.gst_rate || 0) > 0 ? hsnXml(product, config) : '';
+  const partNoXml = `<MAILINGNAME.LIST TYPE="String"><MAILINGNAME>${xmlEscape(partNumber)}</MAILINGNAME></MAILINGNAME.LIST>`;
+  const xml = `<ENVELOPE><HEADER><VERSION>1</VERSION><TALLYREQUEST>Import Data</TALLYREQUEST></HEADER><BODY><IMPORTDATA><REQUESTDESC><REPORTNAME>All Masters</REPORTNAME><STATICVARIABLES><SVCURRENTCOMPANY>${xmlEscape(config.company_name)}</SVCURRENTCOMPANY></STATICVARIABLES></REQUESTDESC><REQUESTDATA><TALLYMESSAGE xmlns:UDF="TallyUDF"><STOCKITEM NAME="${xmlEscape(targetName)}" ACTION="${safeAction}"><NAME>${xmlEscape(product.name)}</NAME><NAME.LIST TYPE="String"><NAME>${xmlEscape(product.name)}</NAME></NAME.LIST><PARENT>${xmlEscape(config.stock_group)}</PARENT><BASEUNITS>${xmlEscape(unit)}</BASEUNITS>${partNoXml}${gst}</STOCKITEM></TALLYMESSAGE></REQUESTDATA></IMPORTDATA></BODY></ENVELOPE>`;
+  return validateXml(xml, 'Stock-item import request');
+}
+
+function formatMoney(paise) {
+  if (!Number.isSafeInteger(paise)) throw new TallyError('reconciliation_error', 'Monetary values must be safe integer paise');
+  return `${paise < 0 ? '-' : ''}${(Math.abs(paise) / 100).toFixed(2)}`;
+}
+
+function formatQuantity(quantityMilli) {
+  if (!Number.isSafeInteger(quantityMilli) || quantityMilli <= 0) throw new TallyError('reconciliation_error', 'Sale quantity is invalid');
+  return (quantityMilli / 1000).toFixed(3).replace(/\.?0+$/, '');
+}
+
+function stableGuid(reference) {
+  const hex = crypto.createHash('sha256').update(reference).digest('hex').slice(0, 32).split('');
+  hex[12] = '5';
+  hex[16] = ((parseInt(hex[16], 16) & 0x3) | 0x8).toString(16);
+  const value = hex.join('');
+  return `${value.slice(0,8)}-${value.slice(8,12)}-${value.slice(12,16)}-${value.slice(16,20)}-${value.slice(20)}`;
+}
+
+export function reconcileSale(sale) {
+  if (!sale || !Array.isArray(sale.items) || !sale.items.length) throw new TallyError('reconciliation_error', 'Completed sale has no saved item lines');
+  if (!['cash', 'upi'].includes(sale.payment_method)) throw new TallyError('mapping_error', `Payment method ${sale.payment_method} is not configured for Tally export`);
+  const sum = (field, selector = item => Number(item[field] || 0)) => sale.items.reduce((total, item) => total + selector(item), 0);
+  const gross = sum('subtotal_paise', item => Math.round(Number(item.unit_price_paise) * Number(item.quantity_milli) / 1000));
+  const discount = sum('discount_paise');
+  const tax = sum('tax_paise');
+  const lineTotals = sum('line_total_paise');
+  const inclusiveTotal = sale.subtotal_paise - sale.discount_paise;
+  const exclusiveTotal = inclusiveTotal + sale.tax_paise;
+  const taxInclusive = sale.total_paise === inclusiveTotal;
+  if (gross !== sale.subtotal_paise || discount !== sale.discount_paise || tax !== sale.tax_paise || lineTotals !== sale.total_paise || (sale.total_paise !== inclusiveTotal && sale.total_paise !== exclusiveTotal)) {
+    throw new TallyError('reconciliation_error', 'Saved bill header, item, discount, or tax totals do not reconcile; no voucher was generated', {
+      details: { gross, subtotal: sale.subtotal_paise, discount, headerDiscount: sale.discount_paise, tax, headerTax: sale.tax_paise, lineTotals, total: sale.total_paise },
+    });
+  }
+  return { taxInclusive, subtotalPaise: sale.subtotal_paise, discountPaise: sale.discount_paise, taxPaise: sale.tax_paise, totalPaise: sale.total_paise, debitPaise: sale.total_paise + sale.discount_paise, creditPaise: taxInclusive ? sale.subtotal_paise : sale.subtotal_paise + sale.tax_paise };
+}
+
+function taxLedgers(taxPaise, config) {
+  if (taxPaise === 0) return [];
+  switch (config.gst_mode) {
+    case 'single':
+      if (!config.gst_ledger) throw new TallyError('mapping_error', 'Map the single GST ledger before synchronizing taxable sales');
+      return [{ name: config.gst_ledger, amount: taxPaise }];
+    case 'intra':
+      if (!config.cgst_ledger || !config.sgst_ledger) throw new TallyError('mapping_error', 'Map both CGST and SGST/UTGST ledgers for intra-state sales');
+      return [{ name: config.cgst_ledger, amount: Math.floor(taxPaise / 2) }, { name: config.sgst_ledger, amount: taxPaise - Math.floor(taxPaise / 2) }];
+    case 'inter':
+      if (!config.igst_ledger) throw new TallyError('mapping_error', 'Map the IGST ledger for inter-state sales');
+      return [{ name: config.igst_ledger, amount: taxPaise }];
+    default:
+      throw new TallyError('mapping_error', 'Taxable sale has no configured GST ledger strategy');
+  }
+}
+
+function ledgerEntry(name, amountPaise, isDebit, children = '') {
+  return `<ALLLEDGERENTRIES.LIST><LEDGERNAME>${xmlEscape(name)}</LEDGERNAME><ISDEEMEDPOSITIVE>${isDebit ? 'Yes' : 'No'}</ISDEEMEDPOSITIVE><ISPARTYLEDGER>No</ISPARTYLEDGER><AMOUNT>${formatMoney(isDebit ? -amountPaise : amountPaise)}</AMOUNT>${children}</ALLLEDGERENTRIES.LIST>`;
+}
+
+export function buildSalesVoucherXml(sale, config, productMappings = {}) {
+  const reconciled = reconcileSale(sale);
+  const paymentLedger = sale.payment_method === 'cash' ? config.cash_ledger : config.upi_ledger;
+  if (!config.company_name || !config.voucher_type || !paymentLedger || !config.sales_ledger) {
+    throw new TallyError('mapping_error', 'Map the verified company, voucher type, payment ledger, and sales ledger before exporting a sale');
+  }
+  if (sale.items.some(item => Number(item.tax_paise || 0) > 0) && !config.taxable_sales_ledger) {
+    throw new TallyError('mapping_error', 'Map a taxable-sales ledger before exporting a bill containing GST');
+  }
+  if (reconciled.taxPaise && config.gst_mode === 'none') throw new TallyError('mapping_error', 'This bill contains tax but no GST ledger strategy is configured');
+  if (reconciled.discountPaise && !config.discount_ledger) throw new TallyError('mapping_error', 'This bill has a discount but no discount ledger is mapped');
+  const ledgerGroups = new Map();
+  const allocationsTotal = sale.items.reduce((sum, item) => {
+    const mapped = productMappings[item.product_id] || productMappings[String(item.product_id)];
+    if (!mapped?.tally_stock_item_name) throw new TallyError('mapping_error', `No Tally stock-item mapping exists for ${item.product_name}`);
+    if (Number(item.tax_paise || 0) > 0 && !String(item.hsn_code || '').trim()) throw new TallyError('mapping_error', `Saved bill line â€œ${item.product_name}â€ has tax but no HSN/SAC snapshot`);
+    const rateInclusive = reconciled.taxInclusive;
+    const amount = Math.round(Number(item.unit_price_paise) * Number(item.quantity_milli) / 1000) - (rateInclusive ? Number(item.tax_paise || 0) : 0);
+    const ledger = Number(item.tax_paise || 0) > 0 ? config.taxable_sales_ledger : config.sales_ledger;
+    if (!ledger) throw new TallyError('mapping_error', `No sales ledger is mapped for ${item.tax_paise ? 'taxable' : 'non-taxable'} item ${item.product_name}`);
+    const quantity = Number(item.quantity_milli);
+    const rate = ((amount / 100) / (quantity / 1000)).toFixed(6).replace(/0+$/, '').replace(/\.$/, '');
+    const allocation = `<INVENTORYALLOCATIONS.LIST><STOCKITEMNAME>${xmlEscape(mapped.tally_stock_item_name)}</STOCKITEMNAME><ISDEEMEDPOSITIVE>No</ISDEEMEDPOSITIVE><RATE>${rate}/${xmlEscape(mapped.unit || item.unit)}</RATE><AMOUNT>${formatMoney(amount)}</AMOUNT><ACTUALQTY>${formatQuantity(quantity)} ${xmlEscape(mapped.unit || item.unit)}</ACTUALQTY><BILLEDQTY>${formatQuantity(quantity)} ${xmlEscape(mapped.unit || item.unit)}</BILLEDQTY><BATCHALLOCATIONS.LIST><GODOWNNAME>Main Location</GODOWNNAME><BATCHNAME>Primary Batch</BATCHNAME><AMOUNT>${formatMoney(amount)}</AMOUNT><ACTUALQTY>${formatQuantity(quantity)} ${xmlEscape(mapped.unit || item.unit)}</ACTUALQTY><BILLEDQTY>${formatQuantity(quantity)} ${xmlEscape(mapped.unit || item.unit)}</BILLEDQTY></BATCHALLOCATIONS.LIST></INVENTORYALLOCATIONS.LIST>`;
+    ledgerGroups.set(ledger, [...(ledgerGroups.get(ledger) || []), allocation]);
+    return sum + amount;
+  }, 0);
+  const salesAmount = reconciled.taxInclusive ? sale.subtotal_paise - sale.tax_paise : sale.subtotal_paise;
+  if (allocationsTotal !== salesAmount) throw new TallyError('reconciliation_error', 'Stock allocations do not match the saved sales ledger total');
+  const salesEntries = [...ledgerGroups.entries()].map(([ledger, allocationList]) => {
+    const amount = sale.items.reduce((sum, item) => {
+      const itemLedger = Number(item.tax_paise || 0) > 0 ? config.taxable_sales_ledger : config.sales_ledger;
+      return itemLedger === ledger ? sum + Math.round(Number(item.unit_price_paise) * Number(item.quantity_milli) / 1000) - (reconciled.taxInclusive ? Number(item.tax_paise || 0) : 0) : sum;
+    }, 0);
+    return ledgerEntry(ledger, amount, false, allocationList.join(''));
+  }).join('');
+  const taxEntries = taxLedgers(sale.tax_paise, config).map(entry => ledgerEntry(entry.name, entry.amount, false)).join('');
+  const discountEntry = sale.discount_paise ? ledgerEntry(config.discount_ledger, sale.discount_paise, true) : '';
+  if (reconciled.debitPaise !== salesAmount + sale.tax_paise) {
+    throw new TallyError('reconciliation_error', 'Generated Tally debit and credit totals do not balance');
+  }
+  const billNumber = String(sale.bill_number || '').trim();
+  if (!billNumber) throw new TallyError('validation_error', 'Bill number is missing');
+  const remoteId = `SUGAN-SALE-${billNumber}`;
+  const date = String(sale.created_at || '').slice(0, 10).replaceAll('-', '');
+  if (!/^\d{8}$/.test(date)) throw new TallyError('validation_error', 'Bill date must be in YYYY-MM-DD format');
+  const paymentEntry = ledgerEntry(paymentLedger, sale.total_paise, true);
+  const voucher = `<VOUCHER VCHTYPE="${xmlEscape(config.voucher_type)}" ACTION="Create" OBJVIEW="Accounting Voucher View"><DATE>${date}</DATE><VOUCHERTYPENAME>${xmlEscape(config.voucher_type)}</VOUCHERTYPENAME><VOUCHERNUMBER>${xmlEscape(billNumber)}</VOUCHERNUMBER><GUID>${stableGuid(remoteId)}</GUID><REMOTEID>${xmlEscape(remoteId)}</REMOTEID><REFERENCE>${xmlEscape(billNumber)}</REFERENCE><NARRATION>${xmlEscape(`Sugan POS bill ${billNumber}`)}</NARRATION><PERSISTEDVIEW>Accounting Voucher View</PERSISTEDVIEW><ISINVOICE>No</ISINVOICE>${paymentEntry}${discountEntry}${salesEntries}${taxEntries}</VOUCHER>`;
+  return validateXml(`<ENVELOPE><HEADER><VERSION>1</VERSION><TALLYREQUEST>Import</TALLYREQUEST><TYPE>Data</TYPE><ID>Vouchers</ID></HEADER><BODY><DESC><STATICVARIABLES><SVCURRENTCOMPANY>${xmlEscape(config.company_name)}</SVCURRENTCOMPANY></STATICVARIABLES></DESC><DATA><TALLYMESSAGE>${voucher}</TALLYMESSAGE></DATA></BODY></ENVELOPE>`, 'Sales voucher request');
+}
+
+export function buildVoucherLookupRequest(companyName, remoteId) {
+  if (!companyName || !/^SUGAN-SALE-[A-Za-z0-9._-]+$/.test(remoteId)) throw new TallyError('validation_error', 'Invalid voucher lookup key');
+  const formula = `$$IsEqual:$RemoteID:"${remoteId}"`;
+  return `<ENVELOPE><HEADER><VERSION>1</VERSION><TALLYREQUEST>Export</TALLYREQUEST><TYPE>Collection</TYPE><ID>SuganVoucherLookup</ID></HEADER><BODY><DESC><STATICVARIABLES><SVCURRENTCOMPANY>${xmlEscape(companyName)}</SVCURRENTCOMPANY><SVEXPORTFORMAT>$$SysName:XML</SVEXPORTFORMAT></STATICVARIABLES><TDL><TDLMESSAGE><COLLECTION NAME="SuganVoucherLookup" TYPE="Voucher" ISMODIFY="No"><FETCH>RemoteID</FETCH><FETCH>GUID</FETCH><FETCH>VoucherNumber</FETCH><FETCH>MasterID</FETCH><FILTERS>SuganRemoteIdFilter</FILTERS></COLLECTION><SYSTEM TYPE="Formulae" NAME="SuganRemoteIdFilter">${formula}</SYSTEM></TDLMESSAGE></TDL></DESC></BODY></ENVELOPE>`;
+}
+
+export function findVoucherByRemoteId(document, remoteId) {
+  return tagValues(document, 'VOUCHER').some(voucher => childText(voucher, 'REMOTEID') === remoteId || childText(voucher, 'REMOTEID').toUpperCase() === remoteId.toUpperCase());
+}
+

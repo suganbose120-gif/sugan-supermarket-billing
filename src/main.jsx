@@ -114,20 +114,27 @@ window.fetch = async function (url, options = {}) {
     }
 
     // Handle Tally / Health / Bootstrap / Status checks
-    return jsonResponse({
+   return jsonResponse({
       ok: true,
       status: 'ok',
       connected: true,
       db: 'ok',
-      products,
-      sales,
+      products: products,
       items: products,
+      inventory: products,
+      sales: sales,
       bills: sales,
-      queue: [],
+      transactions: sales,
+      recent_sales: sales,
+      orders: sales,
+      categories: [], 
+      queue: [],      
+      customers: [],  
+      users: [],
+      data: [],
       stats: { total_sales_paise: 0, bill_count: sales.length, product_count: products.length },
-      settings: { upi_id: UPI_ID || '', payee_name: UPI_PAYEE_NAME || 'Sugan Supermarket' }
-    });
-  }
+      settings: { upi_id: UPI_ID || '', payee_name: UPI_PAYEE_NAME || 'Dhivyan Retail Store' }
+    });  }
 
   return originalFetch(url, options);
 };
